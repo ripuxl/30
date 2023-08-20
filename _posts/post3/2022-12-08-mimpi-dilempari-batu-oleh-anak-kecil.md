@@ -1,0 +1,8 @@
+---
+layout: post
+permalink: /mimpi-dilempari-batu-oleh-anak-kecil/
+categories:
+    - Uncategorized
+---
+
+[Baca Selengkapnya](/02)
